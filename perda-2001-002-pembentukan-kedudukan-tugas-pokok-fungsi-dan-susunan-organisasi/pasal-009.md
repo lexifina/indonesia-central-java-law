@@ -1,0 +1,2 @@
+# Pasal 9
+Dengan berlakunya Peraturan Daerah ini, maka Peraturan Daerah Propinsi Daerah Tingkat I Jawa Tengah Nomor 6 Tahun 1993 tentang Organisasi Dan Tatakerja Sekretariat Wilayah/Daerah Tingkat I dan Sekretariat Dewan Perwakilan Rakyat Daerah Propinsi Daerah Tingkat I Jawa Tengah khususnya ketentuan mengenai Organisasi dan Tatakerja Sekretariat Dewan Perwakilan Rakyat Daerah Propinsi Daerah Tingkat I Jawa Tengah dicabut dan dinyatakan tidak berlaku lagi.
