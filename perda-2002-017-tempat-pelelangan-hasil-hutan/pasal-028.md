@@ -1,0 +1,2 @@
+# Pasal 28
+Dengan berlakunya Peraturan Daerah ini, maka Peraturan Daerah Provinsi Daerah Tingkat I Jawa Tengah Nomor 3 Tahun 1999 tentang Retribusi Pasar Grosir Dan Atau Pertokoan sebagaimana telah diubah dengan Peraturan Daerah Provinsi Jawa Tengah Nomor 3 Tahun 2000 sepanjang yang mengatur ketentuan Retribusi Tempat Pelelangan Hasil Hutan dan ketentuan-ketentuan lain yang bertentangan dengan Peraturan Daerah ini dicabut dan dinyatakan tidak berlaku lagi.
