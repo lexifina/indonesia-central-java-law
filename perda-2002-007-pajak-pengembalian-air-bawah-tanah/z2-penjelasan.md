@@ -1,0 +1,14 @@
+# Penjelasan
+PENJELASAN PERATURAN DAERAH PROPINSI JAWA TENGAH NOMOR 7 TAHUN 2002 TENTANG PAJAK PENGAMBILAN AIR BAWAH TANAH
+I. PENJELASAN UMUM
+Bahwa sumber daya alam yang berupa Air Bawah Tanah perlu dijaga kelestariannya agar keberadaannya dapat tetap mendukung dan mengantisipasi kebutuhan hidup masyarakat disamping juga merupakan potensi pendapatan Daerah yang cukup penting guna pembiayaan pembangunan dan penyelenggaraan Pemerintahan.
+Selanjutnya berdasarkan ketentuan Pasal 2 ayat (2) huruf f Undang-undang Nomor 18 Tahun 1997 tentang Pajak Daerah Dan Retribusi Daerah Juncto Peraturan Pernerintah Nomor 19 Tahun 1997 tentang Pajak Daerah, Pajak Pengambilan Air Bawah Tanah menjadi lapangan penerimaan Pajak Daerah Tingkat II.
+Berdasarkan Undang-undang Nomor 22 Tahun 1999 tentang Pemerintahan Daerah juncties Undang-undang Nomor 25 Tahun 1999 tentang Perimbangan Keuangan Antara Pernerintah Pusat Dan Daerah dan Undang-undang Nomor 34 Tahun 2000 tentang Perubahan Atas Undang-undang Nomor 18 Tahun 1997 tentang Pajak Daerah Dan Retribusi Daerah, maka Pajak Pengambilan Air Bawah Tanah merupakan jenis Pajak bagi Propinsi.
+Disamping itu hasil pemungutan Pajak Pengambilan Air Bawah Tanah diharapkan akan memperkuat upaya peningkatan penerimaan Daerah bagi Propinsi pada umumnya dan peningkatan bagi hasil bagi Kabupaten / Kota khususnya.
+Sehubungan dengan hal tersebut di atas dan dengan berpedoman Pasal 2 ayat (1) huruf d Undang-undang Nomor 34 Tahun 2000 tentang Perubahan Atas Undang-undang Nomor 18 Tahun 1997 tentang Pajak Daerah Dan Retribusi Daerah Juncto Peraturan Pernerintah Nomor 65 Tahun 2001 tentang Pajak Daerah.
+II. PENJELASAN PASAL DEMI PASAL
+Pasal 1 s.d. Pasal 3 : Cukup jelas Pasal 4 huruf a : Tidak termasuk yang dikecualikan sebaga cbyek Pajak Pengambilan Air Bawah Tanah adalah Pengambilan Air Bawah Tanah yang dilakukan oleh Badan Usaha Milik Negara dan Badan Usaha Milik Daerah Pasal 4 huruf b : Pengecualian obyek Pajak atas Pengambilan Air Bawah Tanah untuk kepentingan pengairan pertanian rakyat tetap memperhatikan kelestarian lingkungan dan peraturan perundang-undangan yang berlaku.
+Pasal 4 huruf c : Pengecualian obyek Pajak atas Pengambilan Air Bawah Tanah untuk keperluan dasar rumah tangga, akan ditetapkan oleh Gubernur atas kuasa Peraturan Daerah ini dengan memperhatikan kelestarian dan peraturan perundang-undangan yang berlaku.
+Pasal 4 huruf d : Cukup jelas Pasal 5 s.d. Pasal 9 : Cukup jelas Pasal 10 ayat (1) : Yang dimaksud dengan satu bulan Takwim adalah jangka waktu yang dimulai tanggal 1 sampai dengan akhlr bulan sesuai dengan umur bulan yang bersangkutan.
+Pasal 10 ayat (2) : Yang dimaksud derigan Tahun Takwim adalah ja.ngka waktu yang dimulai tanggal I Januari sampai dengan 31 Desember.
+Pasal 10 ayat (3) : Cukup jelas Pasal 11 s.d. 31 : Cukup jelas.
