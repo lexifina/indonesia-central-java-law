@@ -1,0 +1,2 @@
+# Pasal 46
+Dengan berlakunya Peraturan Daerah ini maka Peraturan Daerah Provinsi Daerah Tingkat 1 Jawa Tengah Nomor 6 Tahun 1977 tentang Penjualan Kendaraan Bermotor Perorangan Dinas Milik Pemerintah Provinsi Daerah Tingkat I Jawa Tengah dan Peraturan Daerah Provinsi Daerah Tingkat I Jawa Tengah Nomor 7 Tahun 1977 tentang Penjualan Rumah-Rumah Golongan III Milik Daerah dicabut dan dinyatakan tidak berlaku lagi.
