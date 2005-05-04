@@ -1,0 +1,2 @@
+# Pasal 12
+Penyelamatan dan Pelestarian arsip sebagaimana dimaksud dalam Pasal 11 meliputi penyelamatan dan pelestarian arsip yang berkaitan dengan perubahan sistem pemerintahan, pembentukan dan penghapusan kelembagaan, peristiwa-peristiwa lainnya yang bersifat perubahan mendasar dalam penyelenggaraan Pemerintahan, Pembangunan dan Kemasyarakatan, yang bernilai sejarah bagi Pemerintah Daerah, Negara dan Bangsa.
