@@ -1,0 +1,2 @@
+# Pasal 17
+Pada saat Peraturan Daerah ini mulai berlaku, maka Peraturan Daerah Provinsi Jawa Tengah Nomor 9 Tahun 2001 tentang Pembentukan, Kedudukan, Tugas Pokok, Fungsi dan Susunan Organisasi Kantor Satuan Polisi Pamong Praja, Kantor Kas Daerah, Kantor Perwakilan, Kantor Pengelolaan Barang Daerah, Kantor Perpustakaan Daerah, Kantor Pengelola Data Elektronik Provinsi Jawa Tengah (Lembaran Daerah Provinsi Jawa Tengah Tahun 2001 Nomor 28) dan semua ketentuan yang mengatur tentang organisasi perangkat daerah dicabut dan dinyatakan tidak berlaku.

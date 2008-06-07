@@ -1,0 +1,27 @@
+# Pembukaan
+PEMERINTAH PROVINSI JAWA TENGAH
+PERATURAN DAERAH PROVINSI JAWA TENGAH
+NOMOR 9 TAHUN 2008
+TENTANG
+ORGANISASI DAN TATA KERJA SATUAN POLISI PAMONG PRAJA PROVINSI JAWA TENGAH
+DENGAN RAHMAT TUHAN YANG MAHA ESA
+GUBERNUR JAWA TENGAH,
+Menimbang : a. bahwa dalam rangka optimalisasi tugas Polisi Pamong Praja sebagai unsur penegakan Peraturan Daerah dan ketenteraman dan ketertiban umum dan dengan telah terbitnya Peraturan Pemerintah Nomor 32 Tahun 2004 tentang Pedoman Satuan Polisi Pamong Praja dan Peraturan Pemerintah Nomor 41 Tahun 2007 tentang Organisasi Perangkat Daerah, maka Kantor Satuan Polisi Pamong Praja yang dibentuk berdasarkan Peraturan Daerah Provinsi Jawa Tengah Nomor 9 Tahun 2001 tentang Pembentukan, Kedudukan, Tugas Pokok, Fungsi dan Susunan Organisasi Kantor Satuan Polisi Pamong Praja, Kantor Kas Daerah, Kantor Perwakilan, Kantor Pengelolaan Barang Daerah, Kantor Perpustakaan Daerah, Kantor Pengelola Data Elektronik Provinsi Jawa Tengah, sudah tidak sesuai lagi oleh karena itu perlu ditinjau kembali;
+b. bahwa berdasarkan pertimbangan sebagaimana dimak-sud huruf a, maka perlu menetapkan Peraturan Daerah tentang Organisasi Dan Tata Kerja Satuan Polisi Pamong Praja Provinsi Jawa Tengah;
+Mengingat : 1. Undang-Undang Nomor 10 Tahun 1950 tentang Pembentukan Provinsi Jawa Tengah;
+2. Undang-Undang Nomor 10 Tahun 2004 tentang Pembentukan Peraturan Perundang-undangan (Lembar-an Negara Republik Indonesia Tahun 2004 Nomor 53, Tambahan Lembaran Negara Republik Indonesia Nomor 4389);
+3. Undang-Undang Nomor 32 Tahun 2004 tentang Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2004 Nomor 125, Tambahan Lembaran Negara Republik Indonesia Nomor 4437) sebagaimana telah beberapa kali diubah terakhir dengan Undang-Undang Nomor 12 Tahun 2008 tentang Perubahan Kedua Atas Undang-Undang Nomor 32 Tahun 2004 tentang Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2008 Nomor 59, Tambahan Lembaran Negara Republik Indonesia Nomor 4844);
+4. Undang-Undang Nomor 33 Tahun 2004 tentang Perimbangan Keuangan Antara Pemerintah Pusat Dan Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2004 Nomor 126, Tambahan Lembaran Negara Republik Indonesia Nomor 4438);
+5. Peraturan Pemerintah Nomor 32 Tahun 2004 tentang Pedoman Satuan Polisi Pamong Praja (Lembaran Negara Republik Indonesia Tahun 2004 Nomor 112, Tambahan Lembaran Negara Republik Indonesia Nomor 4428);
+6. Peraturan Pemerintah Nomor 79 Tahun 2005 tentang Pedoman Pembinaan Dan Pengawasan Penyelenggaraan Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2005 Nomor 125, Tambahan Lembaran Negara Republik Indonesia Nomor 4593);
+7. Peraturan Pemerintah Nomor 38 Tahun 2007 tentang Pembagian Urusan Pemerintahan Antara Pemerintah, Pemerintahan Daerah Provinsi, dan Pemerintahan Daerah Kabupaten/Kota (Lembaran Negara Republik Indonesia Tahun 2007 Nomor 82, Tambahan Lembaran Negara Republik Indonesia Nomor 4737);
+8. Peraturan Pemerintah Nomor 41 Tahun 2007 tentang Organisasi Perangkat Daerah (Lembaran Negara Republik Indonesia Tahun 2007 Nomor 89, Tambahan Lembaran Negara Republik Indonesia Nomor 4741);
+9. Peraturan Daerah Provinsi Jawa Tengah Nomor 4 Tahun 2008 tentang Urusan Pemerintahan Yang Menjadi Kewenangan Pemerintahan Daerah Provinsi Jawa Tengah (Lembaran Daerah Provinsi Jawa Tengah Tahun 2008 Nomor 4 Seri E Nomor 4, Tambahan Lembaran Daerah Provinsi Jawa Tengah Nomor 8);
+Dengan Persetujuan Bersama
+DEWAN PERWAKILAN RAKYAT DAERAH PROVINSI JAWA TENGAH
+dan
+GUBERNUR JAWA TENGAH
+MEMUTUSKAN :
+Menetapkan : PERATURAN DAERAH TENTANG ORGANISASI DAN TATA KERJA SATUAN POLISI PAMONG PRAJA PROVINSI JAWA TENGAH.
+BAB I
+KETENTUAN UMUM
