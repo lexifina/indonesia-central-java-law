@@ -1,0 +1,2 @@
+# Pasal 34
+Pada saat Peraturan Daerah ini mulai berlaku, maka Peraturan Daerah Provinsi Jawa Tengah Nomor 6 Tahun 2006 tentang Pembentukan, Kedudukan, Tugas Pokok, Fungsi Dan Susunan Organisasi Rumah Sakit Umum Daerah dan Rumah Sakit Jiwa Daerah Provinsi Jawa Tengah (Lembaran Daerah Provinsi Jawa Tengah Tahun 2006 Nomor 6 Seri D Nomor 6) dan semua ketentuan yang mengatur tentang organisasi perangkat daerah, dicabut dan dinyatakan tidak berlaku.
