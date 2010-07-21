@@ -1,0 +1,3 @@
+# Pasal 51
+(1) Dalam hal Badan Usaha Pemegang IUP telah diberi Wilayah Kerja, terhadap bidang-bidang tanah yang dipergunakan langsung untuk kegiatan usaha dan areal pengamanannya, diberikan hak pakai sesuai dengan ketentuan peraturan perundang-undangan yang berlaku dan wajib memelihara serta menjaga bidang tanah tersebut.
+(2) Dalam hal pemberian Wilayah Kerja sebagaimana dimaksud pada ayat (1) meliputi areal yang luas di atas tanah Negara, bagian-bagian tanah yang belum digunakan untuk kegiatan usaha dapat diberikan kepada pihak lain oleh menteri yang tugas dan tanggung jawabnya meliputi bidang agraria atau pertanahan dengan mengutamakan masyarakat setempat setelah mendapatkan rekomendasi dari Menteri.
