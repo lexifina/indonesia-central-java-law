@@ -1,0 +1,12 @@
+# Penutup
+Agar setiap orang mengetahuinya, memerintahkan pengundangan Peraturan Daerah ini dengan penempatannya dalam Lembaran Daerah Provinsi Jawa Tengah.
+Ditetapkan di Semarang
+pada tanggal 8 Juli 2011
+GUBERNUR JAWA TENGAH,
+BIBIT WALUYO
+Diundangkan di Semarang
+pada tanggal 8 Juli 2011
+SEKRETARIS DAERAH PROVINSI
+JAWA TENGAH
+HADI PRABOWO
+LEMBARAN DAERAH PROVINSI JAWA TENGAH TAHUN 2011 NOMOR 4.

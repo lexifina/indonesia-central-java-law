@@ -1,0 +1,2 @@
+# Pasal 1
+Peraturan Daerah Provinsi Jawa Tengah Nomor 16 Tahun 2002 tentang Tempat Pelelangan Ikan (Lembaran Daerah Provinsi Jawa Tengah Tahun 2002 Nomor 118) sebagaimana telah diubah dengan Peraturan Daerah Provinsi Jawa Tengah Nomor 10 Tahun 2003 tentang Perubahan Atas Peraturan Daerah Provinsi Jawa Tengah Nomor 16 Tahun 2002 tentang Tempat Pelelangan Ikan (Lembaran Daerah Provinsi Jawa Tengah Tahun 2003 Nomor 127), dicabut dan dinyatakan tidak berlaku.
