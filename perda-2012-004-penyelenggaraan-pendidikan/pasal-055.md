@@ -1,0 +1,2 @@
+# Pasal 55
+Pemerintah Daerah sesuai dengan kewenangannya dapat memberikan sanksi administratif berupa peringatan, penggabungan, penundaan atau pembatalan pemberian sumber daya pendidikan kepada satuan pendidikan, pembekuan, penutupan satuan pendidikan dan/atau program pendidikan yang melaksanakan pendidikan yang tidak sesuai dengan ketentuan sebagaimana dimaksud dalam Pasal 13 dan Pasal 19 ayat (1).
