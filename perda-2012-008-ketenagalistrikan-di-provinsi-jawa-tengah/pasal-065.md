@@ -1,0 +1,4 @@
+# Pasal 65
+(1) Setiap orang yang melakukan usaha penyediaan tenaga listrik untuk kepentingan umum tanpa izin sebagaimana dimaksud dalam Pasal 22 ayat (1) dipidana dengan pidana sebagaimana diatur dalam ketentuan peraturan perundang-undangan di bidang ketenagalistrikan.
+(2) Setiap orang yang melakukan usaha penyediaan tenaga listrik tanpa izin operasi sebagaimana dimaksud dalam Pasal 43 ayat (1) dipidana dengan pidana sebagaimana diatur dalam ketentuan peraturan perundang-undangan di bidang ketenagalistrikan.
+(3) Setiap orang yang menjual kelebihan tenaga listrik untuk dimanfaatkan bagi kepentingan umum tanpa persetujuan dari Kepala SKPD atas nama Gubernur sebagaimana dimaksud dalam Pasal 47 ayat (3) dipidana dengan pidana sebagaimana diatur dalam ketentuan peraturan perundang-undangan di bidang ketenagalistrikan.
