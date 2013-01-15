@@ -1,0 +1,2 @@
+# Pasal 12
+Semua peraturan perundang-undangan yang merupakan peraturan pelaksana dari Peraturan Daerah Provinsi Daerah Tingkat I Jawa Tengah Nomor 10 Tahun 1984 tentang Penerimaan Sumbangan Pihak Ketiga Kepada Daerah, dinyatakan masih tetap berlaku sepanjang tidak bertentangan dengan ketentuan Peraturan Daerah ini atau sampai ditetapkannya peraturan pelaksana yang baru sesuai dengan Peraturan Daerah ini.
