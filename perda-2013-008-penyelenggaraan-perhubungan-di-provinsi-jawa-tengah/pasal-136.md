@@ -1,0 +1,4 @@
+# Pasal 136
+(1) Gubernur dapat menyelenggarakan prasarana perkeretaapian dengan menugaskan badan usaha di bidang prasarana perkeretaapian, apabila tidak terdapat badan usaha yang menyelenggarakan prasarana perkeretaapian umum sebagaimana dimaksud dalam Pasal 135 ayat (2).
+(2) Gubernur dapat melakukan kerjasama dengan Pemerintah dan/atau Pemerintah Kabupaten/Kota dalam penyelenggaraan prasarana perkeretaapian umum sebagaimana dimaksud pada ayat (1), sesuai dengan ketentuan peraturan perundang-undangan.
+(3) Dalam hal penyelenggaraan prasarana perkeretaapian umum sebagaimana dimaksud pada ayat (1) dan ayat (2) secara ekonomi sudah bersifat komersial, maka Gubernur mengalihkan penyelenggaraan prasarana perkeretaapian kepada badan usaha sebagaimana dimaksud dalam Pasal 135 ayat (2), sesuai dengan ketentuan peraturan perundang-undangan.

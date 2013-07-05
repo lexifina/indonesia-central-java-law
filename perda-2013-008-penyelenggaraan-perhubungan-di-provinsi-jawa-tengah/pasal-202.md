@@ -1,0 +1,2 @@
+# Pasal 202
+Setiap orang yang mengemudikan Kendaraan angkutan orang dengan tujuan tertentu yang menaikkan atau menurunkan Penumpang lain di sepanjang perjalanan atau menggunakan kendaraan angkutan tidak sesuai dengan angkutan untuk keperluan lain sebagaimana dimaksud dalam Pasal 65 ayat (1) dipidana dengan pidana kurungan paling lama 1 (satu) bulan atau denda paling banyak Rp 250.000,00 (dua ratus lima puluh ribu rupiah).

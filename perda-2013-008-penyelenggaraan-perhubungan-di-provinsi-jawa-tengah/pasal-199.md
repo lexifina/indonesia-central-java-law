@@ -1,0 +1,3 @@
+# Pasal 199
+(1) setiap orang yang melakukan perbuatan yang mengakibatkan gangguan pada fungsi rambu lalulintas, marka jalan, alat pemberi isyarat lalu lintas,fasilitas pejalan kaki, dan alat pengaman pengguna jalan sebagaimana dimaksud dalam Pasal 23 dipidana dengan pidana kurungan paling lama 1 (satu) bulan atau denda paling banyak Rp 250.000,00 (dua ratus limapuluh ribu rupiah).
+(2) Setiap orang yang merusak rambu lalu lintas, marka jalan, alat pemberi isyarat lalu lintas, fasilitas pejalan kaki, dan alat pengaman pengguna jalan sehingga tidak berfungsi sebagaimana dimaksud dalam Pasal 23 dipidana dengan pidana penjara paling lama 2 (dua)tahun atau denda paling banyak Rp 50.000.000,00 (lima puluh juta rupiah).

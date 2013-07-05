@@ -1,0 +1,2 @@
+# Pasal 210
+Pada saat Peraturan Daerah ini mulai berlaku, maka Peraturan Daerah Provinsi Jawa Tengah Nomor 9 Tahun 2004 tentang Penyelenggaraan Lalu Lintas Dan Angkutan Jalan (Lembaran Daerah Provinsi Jawa Tengah Tahun 2004 Nomor 44 Seri E Nomor 5), dan semua ketentuan yang mengatur mengenai penyelenggaraan perhubungan yang bertentangan dengan Peraturan Daerah ini dicabut dan dinyatakan tidak berlaku.
