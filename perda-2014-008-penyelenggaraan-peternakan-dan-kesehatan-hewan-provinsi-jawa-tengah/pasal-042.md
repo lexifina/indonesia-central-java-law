@@ -1,0 +1,4 @@
+# Pasal 42
+(1) Pemerintah Daerah membina dan memfasilitasi berkembangnya industri pengolahan produk hewan dengan mengutamakan penggunaan bahan baku lokal.
+(2) Pengolahan produk hewan yang dilaksanakan oleh perorangan/kelompok dan/atau badan usaha harus memperhatikan dan mengembangkan aspek-aspek penyiapan bahan baku yang bermutu, menerapkan prinsip-prinsip cara penanganan yang baik, cara pengolahan yang baik, menerapkan sistem jaminan keamanan mutu hasil peternakan serta memanfaatkan dan mengelola limbah dengan baik.
+(3) Setiap perorangan/kelompok dan/atau badan usaha yang menghasilkan produk hewan untuk diedarkan secara komersial kepada masyarakat, harus memenuhi standar keamanan pangan, kesehatan, mencantumkan spesifikasi produk hewan dan halal bagi yang dipersyaratkan yang ditetapkan oleh Instansi yang berwenang.
