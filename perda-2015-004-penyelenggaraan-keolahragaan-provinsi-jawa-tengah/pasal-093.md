@@ -1,0 +1,3 @@
+# Pasal 93
+(1) Akreditasi sebagaimana dimaksud dalam Pasal 92 ayat (3) dilakukan untuk menentukan kelayakan dan peringkat standar kompetensi tenaga keolahragaan, standar isi program penataran/pelatihan tenaga keolahragaan, standar prasarana dan sarana olahraga, standar pengelolaan organisasi keolahragaan, standar penyelenggaraan keolahragaan, dan standar pelayanan minimal keolahragaan.
+(2) Akreditasi kelayakan sebagaimana dimaksud pada ayat (1) ditentukan berdasarkan tingkat pemenuhan standar kelayakan secara obyektif sesuai ketentuan peraturan perundang-undangan dan ketentuan federasi olahraga internasional.
