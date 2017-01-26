@@ -1,0 +1,2 @@
+# Pasal 12
+Fasilitasi terlaksananya pedoman kependudukan meliputi norma, standar, prosedur, dan kriteria administrasi kependudukan serta sarana dan prasarana sebagaimana dimaksud dalam Pasal 6 ayat (1) huruf f, Gubernur melakukan koordinasi, sosialisasi dan/atau bimbingan teknis pelaksanaan administrasi kependudukan serta pemberian fasilitas pendukung penyelenggaraan administrasi kependudukan kepada kabupaten/kota.

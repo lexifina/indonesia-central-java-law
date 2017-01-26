@@ -1,0 +1,9 @@
+# Pasal 7
+(1) Koordinasi penyelenggaraan administrasi kependudukan sebagaimana dimaksud dalam Pasal 6 ayat (1) huruf a, Gubernur mengadakan koordinasi dengan instansi vertikal dan lembaga pemerintah non kementerian, serta antar kabupaten/kota mengenai penyelenggaraan urusan administrasi kependudukan, antara lain meliputi:
+a. berkoordinasi dengan Kantor Kementerian Agama dan Pengadilan Agama di kabupaten/kota dalam hal pencatatan nikah, talak, cerai dan rujuk bagi penduduk yang beragama Islam;
+b. berkoordinasi dengan Kantor Imigrasi Jawa Tengah Kementerian Hukum dan Hak Asasi Manusia dalam hal pencatatan warga negara asing yang memiliki Kartu Izin Tinggal Terbatas atau Kartu Izin Tinggal Tetap di kabupaten/kota;
+c. berkoordinasi dengan perangkat daerah yang menangani bidang Kesehatan dan Rumah Sakit atau lembaga layanan kesehatan di kabupaten/kota dalam hal pelaporan kelahiran dan penyebab kematian;
+d. berkoordinasi dengan perangkat daerah yang menangani bidang Tenaga Kerja dan/atau Sosial di kabupaten/kota dalam hal mengeluarkan Surat Izin Mempekerjakan Tenaga Asing pada perusahaan di kabupaten/kota dan penempatan tenaga kerja melalui antar kerja antar daerah bagi warga negara Indonesia, dan dalam hal pemberian rekomendasi kemandirian orang terlantar;
+e. berkoordinasi dengan instansi vertikal di Daerah yang menangani peristiwa kependudukan dalam penempatan tenaga kerja Indonesia ke luar negeri;
+f. berkoordinasi dengan Pengadilan Negeri di kabupaten/kota dalam hal penetapan pengadilan terhadap pencatatan peristiwa penting; dan g. berkoordinasi dengan Kepolisian dalam hal Berita Acara Pemeriksaan/Surat Keterangan dari Kepolisian berkaitan dengan penduduk yang rentan administrasi kependudukan.
+(2) Koordinasi sebagaimana dimaksud pada ayat (1) berkaitan dengan perencanaan, pengorganisasian, pelaksanaan, pengawasan dan evaluasi penyelenggaraan administrasi kependudukan.
