@@ -1,0 +1,2 @@
+# Pasal 217
+Pada saat Peraturan Daerah ini mulai berlaku, semua peraturan pelaksanaan dari Peraturan Daerah Provinsi Jawa Tengah Nomor 8 Tahun 2013 tentang Penyelenggaraan Perhubungan di Provinsi Jawa Tengah (Lembaran Daerah Provinsi Jawa Tengah Tahun 2004 Nomor 8, Tambahan Lembaran Daerah Nomor 54), dinyatakan masih tetap berlaku sepanjang tidak bertentangan dengan ketentuan dalam Peraturan Daerah ini.

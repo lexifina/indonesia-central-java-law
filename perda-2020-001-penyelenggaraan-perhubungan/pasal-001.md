@@ -1,0 +1,77 @@
+# Pasal 1
+Dalam Peraturan Daerah ini, yang dimaksud dengan:
+1. Pemerintah Pusat yang selanjutnya disebut Pemerintah adalah Presiden Republik Indonesia yang memegang kekuasaan pemerintahan negara Republik Indonesia sebagaimana dimaksud dalam Undang-Undang Dasar Negara Republik Indonesia Tahun 1945.
+2. Daerah adalah Provinsi Jawa Tengah.
+3. Pemerintah Daerah adalah Gubernur sebagai unsur penyelenggara Pemerintahan Daerah yang memimpin pelaksanaan urusan pemerintahan yang menjadi kewenangan daerah otonom.
+4. Gubernur adalah Gubernur Jawa Tengah.
+5. Kabupaten/Kota adalah Kabupaten/Kota di Jawa Tengah.
+6. Perangkat Daerah adalah unsur pembantu Gubernur dan DPRD dalam penyelenggaraan urusan pemerintahan yang menjadi kewenangan Daerah.
+7. Bupati/Walikota adalah Bupati/Walikota di Provinsi Jawa Tengah.
+8. Jalan Provinsi adalah jalan Provinsi Jawa Tengah.
+9. Jalan adalah seluruh bagian Jalan, termasuk bangunan pelengkap dan perlengkapannya yang diperuntukkan bagi Lalu Lintas umum, yang berada pada permukaan tanah, di atas permukaan tanah, di bawah permukaan tanah dan/atau air, serta di atas permukaan air, kecuali jalan rel dan jalan kabel.
+10. Lalu Lintas adalah gerak Kendaraan dan orang di Ruang Lalu Lintas Jalan.
+11. Jaringan Lalu Lintas dan Angkutan Jalan adalah serangkaian Simpul dan/atau ruang kegiatan yang saling terhubungkan untuk penyelenggaraan Lalu Lintas dan Angkutan Jalan.
+12. Manajemen dan Rekayasa Lalu Lintas adalah serangkaian usaha dan kegiatan yang meliputi perencanaan, pengadaan, pemasangan, pengaturan, dan pemeliharaan fasilitas perlengkapan jalan dalam rangka mewujudkan, mendukung dan memelihara keamanan, keselamatan, ketertiban, dan kelancaran lalu lintas.
+13. Manajemen kebutuhan lalu lintas adalah kegiatan yang dilaksanakan dengan sasaran meningkatkan efisiensi dan efektivitas penggunaan ruang lalu lintas dan mengendalikan pergerakan lalu lintas.
+14. Simpul adalah tempat yang diperuntukkan bagi pergantian antarmoda dan intermoda yang berupa Terminal, stasiun kereta api, pelabuhan laut, pelabuhan sungai dan danau, dan/atau bandar udara.
+15. Terminal adalah pangkalan Kendaraan Bermotor Umum yang digunakan untuk mengatur kedatangan dan keberangkatan, menaikkan dan menurunkan orang dan/atau barang, serta perpindahan moda angkutan.
+16. Parkir adalah keadaan Kendaraan berhenti atau tidak bergerak untuk beberapa saat dan ditinggalkan pengemudinya.
+17. Rambu Lalu Lintas adalah bagian perlengkapan Jalan yang berupa lambang, huruf, angka, kalimat, dan/atau perpaduan yang berfungsi sebagai peringatan, larangan, perintah, atau petunjuk bagi Pengguna Jalan.
+18. Marka Jalan adalah suatu tanda yang berada di permukaan Jalan atau di atas permukaan Jalan yang meliputi peralatan atau tanda yang membentuk garis membujur, garis melintang, garis serong, serta lambing yang berfungsi untuk mengarahkan arus Lalu Lintas dan membatasi daerah kepentingan Lalu Lintas.
+19. Alat Pemberi Isyarat Lalu Lintas adalah perangkat elektronik yang menggunakan isyarat lampu yang dapat dilengkapi dengan isyarat bunyi untuk mengatur Lalu Lintas orang dan/atau Kendaraan di persimpangan atau pada ruas Jalan.
+20. Alat Penerangan Jalan adalah lampu penerangan jalan yang berfungsi untuk memberi penerangan pada ruang lalu lintas.
+21. Perusahaan Angkutan Umum adalah badan hukum yang menyediakan jasa angkutan orang dan/atau barang dengan Kendaraan Bermotor Umum.
+22. Pengguna Jasa adalah perseorangan atau badan hukum yang menggunakan jasa Perusahaan Angkutan Umum.
+23. Keamanan Lalu Lintas dan Angkutan Jalan adalah suatu keadaan terbebasnya setiap orang, barang, dan/atau Kendaraan dari gangguan perbuatan melawan hukum, dan/atau rasa takut dalam berlalu lintas.
+24. Keselamatan Lalu Lintas dan Angkutan Jalan adalah suatu keadaan terhindarnya setiap orang dari risiko kecelakaan selama berlalu lintas yang disebabkan oleh manusia, Kendaraan, Jalan, dan/atau lingkungan.
+25. Izin Trayek adalah izin penyelenggaraan angkutan orang dengan kendaraan bermotor umum untuk angkutan dalam trayek.
+26. Izin Operasi adalah izin penyelenggaraan angkutan orang dengan kendaraan bermotor umum untuk angkutan tidak dalam trayek.
+27. Angkutan Antar Kota Dalam Provinsi adalah angkutan dari satu kota ke kota yang lain yang melalui antar daerah Kabupaten/Kota dalam satu daerah Provinsi dengan menggunakan mobil bus umum yang terikat dalam trayek.
+28. Angkutan Aglomerasi Perkotaan adalah angkutan perkotaan yang wilayah operasinya melampaui daerah Kabupaten/Kota dalam 1 (satu) daerah dalam provinsi yang melayani zona pusat pembangunan dari sebuah kota terhubung dengan kota- kota yang juga terus berkembang.
+29. Kawasan perkotaan adalah kesatuan wilayah terbangun dengan kegiatan utama bukan pertanian, memiliki kerapatan penduduk yang tinggi, fasilitas prasarana jaringan transportasi jalan, interaksi kegiatan antar kawasan yang menimbulkan mobilitas penduduk yang tinggi.
+30. Pembelian Layanan Angkutan adalah skema pemberian subsidi dalam penyelenggaraan angkutan penumpang umum kepada perusahaan angkutan umum.
+31. Subsidi Angkutan Penumpang Umum adalah bantuan biaya pengoperasian untuk angkutan umum dengan tarif yang ditetapkan pada trayek tertentu.
+32. Trayek adalah lintasan kendaraan umum untuk pelayanan jasa angkutan orang dengan mobil bis, yang mempunyai asal dan tujuan perjalanan tetap, lintasan tetap dan jadwal tetap maupun tidak berjadwal.
+33. Jaringan Trayek adalah kumpulan dari trayek-trayek yang menjadi satu kesatuan jaringan pelayanan angkutan orang.
+34. Kereta Api adalah sarana perkeretaapian dengan tenaga gerak, baik berjalan sendiri maupun dirangkaikan dengan sarana perkeretaapian lainnya, yang akan ataupun sedang bergerak di jalan rel yang terkait dengan perjalanan kereta api.
+35. Angkutan Sungai dan Danau adalah Kegiatan angkutan dengan menggunakan kapal yang dilakukan di sungai, waduk, rawa, banjir kanal, dan terusan untuk mengangkut penumpang dan/atau barang yang diselenggarakan oleh perusahaan angkutan sungai dan danau.
+36. Angkutan Penyeberangan adalah angkutan yang berfungsi sebagai jembatan yang menghubungkan jaringan jalan dan/atau jalur kereta api yang dipisahkan oleh perairan untuk mengangkut penumpang dan kendaraan beserta muatannya.
+37. Pelayaran adalah satu kesatuan system yang terdiri atas angkutan diperairan, kepelabuhanan, keselamatan dan keamanan, serta perlindungan lingkungan maritim.
+38. Angkutan di Perairan adalah Kegiatan mengangkut dan/atau memindahkan penumpang dan/atau barang dengan menggunakan kapal.
+39. Angkutan Laut adalah Kegiatan angkutan yang menurut kegiatannya melayani kegiatan angkutan laut.
+40. Angkutan Laut Dalam Negeri adalah Kegiatan angkutan laut yang dilakukan di wilayah perairan Indonesia yang diselenggarakan oleh Perusahaan Angkutan Laut Nasional.
+41. Angkutan Laut Khusus adalah Kegiatan angkutan untuk melayani kepentingan usaha sendiri dalam menunjang usaha pokoknya.
+42. Angkutan Laut Pelayaran rakyat adalah Usaha rakyat yang bersifat tradisional dan mempunyai karakteristik tersendiri untuk melaksanakan angkutan di perairan dengan menggunakan kapal layar, kapal layar bermotor, dan/atau kapal motor sederhana berbendera Indonesia dengan ukuran tertentu.
+43. Perusahaan Angkutan Laut Nasional adalah Perusahaan Angkutan Laut berbadan hukum Indonesia yang melakukan kegiatan angkutan laut di dalam wilayah perairan Indonesia dan/atau dari dan ke pelabuhan di luar negeri.
+44. Perusahaan Angkutan Laut Asing adalah Perusahaan angkutan laut berbadan hukum asing yang kapalnya melakukan kegiatan angkutan laut ke dan dari pelabuhan atau terminal khusus Indonesia yang terbuka bagi perdagangan luar negeri dari dan ke pelabuhan luar negeri.
+45. Kapal berbendera Indonesia adalah Kapal yang telah didaftarkan dalam Daftar Kapal Indonesia.
+46. Trayek Tetap dan Teratur ( Liner ) adalah Pelayanan angkutan yang dilakukan secara tetap dan teratur dengan berjadwal dan menyebutkan pelabuhan singgah.
+47. Trayek Tidak Tetap dan Tidak teratur ( Tramper ) adalah Pelayanan angkutan yang dilakukan secara tidak tetap dan tidak teratur.
+48. Stevedoring adalah Pekerjaan membongkar barang dari kapal ke dermaga/ tongkang/truk atau memuat barang dari dermaga/tongkang/truk ke dalam kapal sampai dengan tersusun dalam palka kapal dengan menggunakan derek kapal atau derek darat.
+49. Cargodoring adalah Pekerjaan melepaskan barang dari tali/ jala-jala ( Extackle ) di dermaga dan mengangkut dari dermaga ke gudang atau lapangan penumpukan barang atau sebaliknya 50. Receiving/Delivery adalah Pekerjaan memindahkan barang dari timbunan/tempat penumpukan di gudang atau lapangan penumpukan dan menyerahkan sampai tersusun di atas kendaraan di pintu gudang/lapangan penumpukan atau sebaliknya.
+51. Usaha Jasa Pengurusan Transportasi ( Freight Forwarding ) adalah Kegiatan usaha yang ditujukan untuk semua kegiatan yang diperlukan bagi terlaksananya pengiriman dan penerimaan barang melalui angkutan darat, kereta api, laut dan/atau udara.
+52. Kepelabuhanan adalah segala sesuatu yang berkaitan dengan pelaksanaan fungsi pelabuhan untuk menunjang kelancaran, keamanan dan ketertiban arus lalu lintas kapal, penumpang dan/atau barang, keselamatan dan keamanan berlayar, tempat perpindahan intra dan/atau antarmoda serta mendorong perekonomian nasional dan daerah dengan tetap memperhatikan tata ruang wilayah.
+53. Tatanan Kepelabuhanan Nasional adalah Suatu sistem kepelabuhanan yang memuat peran, fungsi, jenis, hierarki pelabuhan, Rencana Induk Pelabuhan Nasional dan lokasi pelabuhan serta keterpaduan intra dan antarmoda serta keterpaduan dengan sektor lainnya.
+54. Rencana Induk Pelabuhan Nasional adalah Pengaturan ruang kepelabuhanan nasional yang memuat tentang kebijakan pelabuhan, rencana lokasi dan hierarki pelabuhan secara nasional yang merupakan pedoman dalam penetapan lokasi, pembangunan, pengoperasian, dan pengembangan pelabuhan.
+55. Rencana Induk Pelabuhan adalah Pengaturan ruang pelabuhan berupa peruntukan rencana tata guna tanah dan perairan di Daerah Lingkungan Kerja dan Daerah Lingkungan Kepentingan Pelabuhan.
+56. Daerah Lingkungan Kerja Pelabuhan yang selanjutnya disingkat DLKr adalah Wilayah perairan dan daratan pada pelabuhan atau terminal khusus yang digunakan secara langsung untuk kegiatan pelabuhan.
+57. Daerah Lingkungan Kepentingan Pelabuhan yang selanjutnya disingkat DLKp adalah Perairan di sekeliling Daerah Lingkungan Kerja Perairan Pelabuhan yang dipergunakan untuk menjamin keselamatan pelayaran.
+58. Pelabuhan adalah tempat yang terdiri atas daratan dan/atau perairan dengan batas-batas tertentu sebagai tempat kegiatan pemerintahan dan kegiatan pengusahaan yang dipergunakan sebagai tempat kapal bersandar, naik turun penumpang, dan/atau bongkar muat barang, berupa terminal dan tempat berlabuh kapal yang dilengkapi dengan fasilitas keselamatan dan keamanan pelayaran dan kegiatan penunjang pelabuhan serta sebagai tempat perpindahan intra dan antar moda transportasi.
+59. Pelabuhan Laut adalah Pelabuhan yang dapat digunakan untuk melayani kegiatan angkutan laut dan/atau angkutan penyeberangan yang terletak di laut atau di sungai.
+60. Pelabuhan Sungai dan Danau adalah Pelabuhan yang digunakan untuk melayani angkutan sungai dan danau yang terletak di sungai dan danau.
+61. Pelabuhan Utama adalah pelabuhan yang fungsi pokoknya melayani kegiatan angkutan laut dalam negeri dan internasional, alih muat angkutan laut dalam negeri dan internasional dalam jumlah besar, dan sebagai tempat asal tujuan penumpang dan/atau barang, serta angkutan penyeberangan dengan jangkauan pelayanan antar provinsi.
+62. Pelabuhan Pengumpul adalah Pelabuhan yang fungsi pokoknya melayani kegiatan angkutan laut dalam negeri, alih muatan angkutan laut dalam negeri dalam jumlah menengah, dan sebagai tempat asal tujuan penumpang dan/atau barang, serta angkutan penyeberangan dengan jangkauan pelayanan antar Provinsi.
+63. Pelabuhan Pengumpan adalah Pelabuhan yang fungsi pokoknya melayani kegiatan angkutan dalam negeri, alih muat angkutan laut dalam negeri dalam jumlah terbatas, merupakan pengumpan bagi pelabuhan utama dan pelabuhan pengumpul, dan sebagai tempat asal tujuan penumpang dan/atau barang, serta angkutan penyeberangan dengan jangkauan pelayanan dalam provinsi.
+64. Terminal Khusus adalah Terminal yang terletak di luar Daerah Lingkungan kerja dan Daerah Lingkungan Kepentingan Pelabuhan yang merupakan bagian dari pelabuhan terdekat untuk melayani kepentingan sendiri sesuai dengan kepentingan pokoknya.
+65. Terminal Untuk Kepentingan Sendiri adalah Terminal yang terletak di dalam Daerah Lingkungan Kerja dan Daerah Lingkungan Kepentingan Pelabuhan yang merupakan bagian dari pelabuhan untuk melayani kepentingan sendiri sesuai dengan usaha pokoknya.
+66. Unit Penyelenggaraan Pelabuhan Daerah adalah Lembaga Pemerintah Daerah di Pelabuhan sebagai otoritas yang melaksanakan fungsi Pengaturan, Pengendalian dan Pengawasan kegiatan kepelabuhanan dan pemberian pelayanan jasa kepelabuhanan untuk pelabuhan yang belum diusahakan secara komersial.
+67. Konsesi adalah Pemberian hak oleh penyelenggara pelabuhan kepada Badan Usaha Pelabuhan untuk melakukan kegiatan penyediaan dan/atau pelayanan jasa kepelabuhanan tertentu dalam jangka waktu tertentu dan kompensasi tertentu.
+68. Kapal adalah kendaraan air dengan bentuk dan jenis tertentu, yang digerakkan dengan tenaga angin, tenaga mekanik, energi lainnya, ditarik atau ditunda, termasuk kendaraan yang berdaya dukung dinamis, kendaraan dibawah permukaan air, serta alat apung dan bangunan terapung yang tidak berpindah-pindah.
+69. Kelaiklautan Kapal adalah Keadaan kapal yang memenuhi persyaratan keselamatan kapal, pencegahan pencemaran perairan dari kapal, pengawakan, garis muat, pemuatan, kesejahteraan awak kapal dan kesehatan penumpang, status hukum kapal, manajemen keselamatan dan penjegahan pencemaran dari kapal, dan manajemen keamanan kapal untuk berlayar diperairan tertentu.
+70. Keselamatan dan keamanan pelayaran adalah suatu keadaan terpenuhinya persyaratan keselamatan dan keamanan yang menyangkut angkutan di perairan, kepelabuhanan, dan lingkungan maritim.
+71. Keselamatan Kapal adalah keadaan kapal yang memenuhi persyaratan material, konstruksi, bangunan, permesinan dan pelistrikan, stabilitas tata susunan serta perlengkapan termasuk perlengkapan alat penolong dan radio, elektronik kapal yang dibukitikan dengan sertifikat setelah dilakukan pemeriksaan dan pengujian.
+72. Awak Kapal adalah orang yang bekerja atau dipekerjakan di atas kapal oleh pemilik atau operator kapal untuk melakukan tugas di atas kapal sesuai dengan jabatannya yang tercantum dalam buku sijil.
+73. Syahbandar adalah pejabat pemerintah di pelabuhan yang diangkat oleh Menteri dan memiliki kewenangan tertinggi untuk menjalankan dan melakukan pengawasan terhadap terpenuhinya ketentuan peraturan perundang-undangan untuk menjamin keselamatan dan keamanan pelayaran.
+74. Pengerukan adalah pekerjaan mengubah bentuk dasar perairan untuk mencapai kedalaman dan lebar yang dikehendaki atau untuk mengambil material dasar perairan yang dipergunakan untuk keperluan tertentu.
+75. Reklamasi adalah pekerjaan timbunan di perairan atau pesisir yang mengubah garis pantai dan atau kontur kedalaman perairan.
+76. Penyidik Pegawai Negeri Sipil yang selanjutnya disingkat PPNS adalah Penyidik Pegawai Negeri Sipil tertentu dilingkungan Pemerintah Daerah yang diberi wewenang khusus oleh Undang-undang untuk melakukan Penyidikan terhadap pelanggaran di bidang Perhubungan.

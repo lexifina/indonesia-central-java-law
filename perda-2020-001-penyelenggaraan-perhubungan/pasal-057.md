@@ -1,0 +1,4 @@
+# Pasal 57
+(1) Perusahaan Angkutan Umum Antar Kota Dalam Provinsi wajib membuat, melaksanakan, dan menyempurnakan Sistem Manajemen Keselamatan Perusahaan Angkutan Umum dengan berpedoman pada Rencana Umum Nasional Keselamatan Lalu Lintas Dan Angkutan Jalan sesuai ketentuan peraturan perundang-undangan.
+(2) Pembuatan Sistem Manajemen Keselamatan Perusahaan Angkutan Umum Antar Kota Dalam Provinsi sebagaimana dimaksud pada ayat (1) dilaksanakan dalam jangka waktu paling lama 3 (tiga) bulan sejak izin penyelenggaraan angkutan umum diberikan.
+(3) Sistem Manajemen Keselamatan Perusahaan Angkutan Umum Antar Kota Dalam Provinsi yang telah dibuat sebagaimana dimaksud pada ayat (1) dilaporkan kepada Perangkat Daerah yang menerbitkan perizinan penyelenggaraan angkutan umum sesuai ketentuan peraturan perundang-undangan.
