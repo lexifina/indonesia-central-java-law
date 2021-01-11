@@ -1,0 +1,2 @@
+# Pasal 20
+Dalam melaksanakan keterpaduan pelayanan bantuan dan penegakan hukum sebagaimana dimaksud dalam Pasal 19, Gubernur bertanggungjawab mengkoordinir kerjasama antara perangkat daerah, lembaga layanan, organisasi bantuan hukum, organisasi profesi advokat dengan lembaga penegak hukum dan instansi vertikal lainnya yang terkait melalui integrasi sistem pemulihan ke dalam sistem peradilan pidana.

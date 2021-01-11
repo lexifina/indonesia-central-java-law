@@ -1,0 +1,2 @@
+# Pasal 9
+Pencegahan kekerasan, eksploitasi dan diskriminasi terhadap perempuan dilakukan secara terpadu dan terintegrasi dengan pemerintah kabupaten/kota, instansi terkait, lembaga pendidikan, lembaga keagamaan, lembaga penyelenggara pelayanan kesehatan, lembaga profesi, dunia usaha, Lembaga layanan, pesantren, organisasi kepemudaan, organisasi bantuan hukum, komunitas, dan media yang dikoordinasikan Perangkat Daerah yang membidangi urusan pemberdayaan perempuan dan perlindungan anak.
