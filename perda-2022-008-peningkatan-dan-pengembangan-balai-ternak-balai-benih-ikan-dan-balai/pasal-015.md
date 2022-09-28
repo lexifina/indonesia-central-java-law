@@ -1,0 +1,4 @@
+# Pasal 15
+(1) Pemerintah Daerah melaksanakan penataan sumber daya manusia Balai sebagaimana dimaksud dalam Pasal 13 melalui pemetaan, pengangkatan atau penetapan, penempatan, peningkatan kompetensi, dan sertifikasi kompetensi.
+(2) Peningkatan kompetensi sebagaimana dimaksud pada ayat (1) dilakukan untuk memenuhi standar kompetensi teknis, kompetensi manajerial dan kompetensi sosial kultural dalam mendukung efektifitas penyelenggaraan Balai yang dapat dilakukan/dilaksanakan melalui bimbingan teknis, in house training, Training of Traineer (TOT), pendidikan dan pelatihan teknis serta untuk membentuk atau menuju kemandirian, dedikasi dan akhlak mulia.
+(3) Peningkatan kompetensi Pegawai Balai dapat diselenggarakan oleh Kelembagaan Balai sendiri, pendidikan dan pelatihan Pemerintah Daerah yang terakreditasi bekerja sama dengan kelembagaan pendidikan dan pelatihan Pemerintah serta pihak swasta.
