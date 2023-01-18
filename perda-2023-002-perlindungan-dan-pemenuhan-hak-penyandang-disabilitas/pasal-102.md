@@ -1,0 +1,2 @@
+# Pasal 102
+Pada saat Peraturan Daerah ini mulai berlaku, Peraturan Gubernur yang merupakan Peraturan Pelaksanaan dari Peraturan Daerah Provinsi Jawa Tengah Nomor 11 Tahun 2014 tentang Pemenuhan Hak Penyandang Disabilitas (Lembaran Daerah Provinsi Jawa Tengah Tahun 2014 Nomor 11, Tambahan Lembaran Daerah Provinsi Jawa Tengah Nomor 71), dinyatakan masih berlaku sepanjang tidak bertentangan dengan ketentuan dalam Peraturan Daerah ini.
