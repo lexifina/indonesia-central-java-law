@@ -1,0 +1,2 @@
+# Pasal 26
+Pada saat Peraturan Daerah ini mulai berlaku, peraturan pelaksanaan Peraturan daerah Provinsi Jawa Tengah Nomor 2 Tahun 2014 tentang Perseroan Terbatas Penjaminan Kredit Daerah Provinsi Jawa Tengah (Lembaran Daerah Provinsi Jawa Tengah Tahun 2014 Nomor 2, Tambahan Lembaran Daerah Provinsi Jawa Tengah Nomor 62) dinyatakan tetap berlaku sepanjang belum diganti dan tidak bertentangan dengan Peraturan Daerah ini.
