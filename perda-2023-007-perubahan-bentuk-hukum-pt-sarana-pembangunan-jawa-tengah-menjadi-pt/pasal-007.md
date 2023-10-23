@@ -1,0 +1,5 @@
+# Pasal 7
+(1) Dalam rangka meningkatkan dan mengembangkan kegiatan usaha yang potensial, PT Sarana Pembangunan Jawa Tengah (Perseroda) dapat membentuk anak perusahaan yang berbadan hukum tersendiri yang disetujui dalam RUPS sesuai ketentuan peraturan perundang-undangan.
+(2) Pembentukan anak perusahaan sebagaimana dimaksud pada ayat (1) dilaporkan kepada Gubernur dan DPRD.
+BAB V
+JANGKA WAKTU BERDIRI DAN ANGGARAN DASAR
