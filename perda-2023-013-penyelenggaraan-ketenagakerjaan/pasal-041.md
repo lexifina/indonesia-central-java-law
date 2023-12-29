@@ -1,0 +1,4 @@
+# Pasal 41
+(1) Selain jenis pekerjaan sebagaimana dimaksud dalam Pasal 40 ayat (2), perjanjian kerja untuk waktu tertentu yang dapat dilaksanakan terhadap pekerjaan tertentu lainnya yang jenis dan sifat atau kegiatannya bersifat tidak tetap berupa pekerjaan tertentu yang berubah-ubah dalam hal waktu dan volume pekerjaan serta pembayaran upah pekerja/buruh berdasarkan kehadiran, dengan ketentuan :
+a. dapat dilakukan dengan perjanjian kerja harian; dan b. perjanjian kerja harian dilakukan dengan ketentuan pekerja/buruh bekerja kurang dari 21 (dua puluh satu) hari dalam 1 (satu) bulan.
+(2) Dalam hal pekerja/buruh bekerja 21 (dua puluh satu) hari atau lebih selama 3 (tiga) bulan berturut-turut atau lebih maka perjanjian kerja harian menjadi tidak berlaku dan hubungan kerja antara Pemberi Kerja dengan pekerja/buruh demi hukum berubah berdasarkan perjanjian kerja waktu tidak tertentu.
