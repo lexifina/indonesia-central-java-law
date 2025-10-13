@@ -1,0 +1,6 @@
+# Pasal 90
+(1) Tenaga Keolahragaan terdiri atas pelatih, asisten pelatih, guru/dosen, wasit, juri, manajer, promotor, administrator, pemandu, penyuluh/penggerak, instruktur, tenaga kesehatan, ahli biomekanika, psikolog, tenaga pengawas doping, relawan, dan tenaga teknis atau sebutan lain yang sesuai dengan kekhususannya serta berpartisipasi dalam menyelenggarakan kegiatan Olahraga.
+(2) Tenaga Keolahragaan yang bertugas dalam setiap Organisasi Olahraga dan/atau lembaga Olahraga harus memiliki kualifikasi dan sertifikat kompetensi yang dikeluarkan oleh Induk Organisasi Cabang Olahraga bersangkutan dan/atau lembaga sertifikasi kompetensi Tenaga Keolahragaan lainnya.
+(3) Tenaga Keolahragaan bertugas menyelenggarakan atau melakukan kegiatan Keolahragaan sesuai dengan bidang keahlian dan/atau kewenangan Tenaga Keolahragaan yang bersangkutan.
+(4) Pengadaan Tenaga Keolahragaan sebagaimana dimaksud pada ayat (1) dilaksanakan melalui pendidikan dan/atau pelatihan oleh lembaga khusus yang berkompeten sesuai dengan bidangnya.
+Dokumen ini telah ditandatangani secara elektronik menggunakan sertifikat elektronik yang diterbitkan oleh Balai Besar Sertifikasi Elektronik (BSrE), Badan Siber dan Sandi Negara (BSSN).
