@@ -1,0 +1,11 @@
+# Pasal 28
+(1) Gubernur sesuai dengan kewenangannya melaksanakan konstruksi Prasarana Sumber Daya Air dan nonkonstruksi berdasarkan program dan rencana kegiatan sebagaimana dimaksud dalam Pasal 26 ayat (2) dan Pasal 27 ayat (2).
+(2) Gubernur sesuai dengan kewenangannya dalam melaksanakan konstruksi Prasarana Sumber Daya Air dan pelaksanaan nonkonstruksi sebagaimana dimaksud pada ayat (1) dapat menugaskan Pengelola Sumber Daya Air.
+Dokumen ini telah ditandatangani secara elektronik menggunakan sertifikat elektronik yang diterbitkan oleh Balai Besar Sertifikasi Elektronik (BSrE), Badan Siber dan Sandi Negara (BSSN).
+(3) Pelaksanaan konstruksi Prasarana Sumber Daya Air dan pelaksanaan nonkonstruksi sebagaimana dimaksud pada ayat (1) dan ayat (2) dapat dilakukan dengan melibatkan peran serta Masyarakat.
+(4) Setiap Orang atau kelompok Masyarakat atas prakarsa sendiri dapat melaksanakan kegiatan konstruksi Prasarana Sumber Daya Air dan pelaksanaan nonkonstruksi untuk kepentingan sendiri.
+(5) Pelaksanaan konstruksi Prasarana Sumber Daya Air dan pelaksanaan nonkonstruksi sebagaimana dimaksud pada ayat (1) dan ayat (2) dilakukan berdasarkan norma, standar, pedoman, dan kriteria dengan memanfaatkan teknologi dan sumber daya lokal serta mengutamakan keselamatan, keamanan kerja, dan keberlanjutan fungsi ekologis sesuai dengan ketentuan peraturan perundang-undangan.
+(6) Setiap Orang atau kelompok Masyarakat dilarang melakukan kegiatan konstruksi Prasarana Sumber Daya Air yang tidak didasarkan pada norma, standar, pedoman dan kriteria sebagaimana dimaksud pada ayat (5).
+(7) Setiap Orang atau kelompok Masyarakat yang melakukan kegiatan pelaksanaan konstruksi pada Sumber Air dan pelaksanaan nonkonstruksi wajib memperoleh perizinan berusaha atau persetujuan Penggunaan Sumber Daya Air dari Gubernur sesuai dengan kewenangannya.
+(8) Kewajiban memperoleh perizinan berusaha atau persetujuan sebagaimana dimaksud pada ayat (7) dikecualikan bagi kegiatan nonkonstruksi yang tidak mengakibatkan perubahan fisik pada Sumber Air.
+(9) Pelaksanaan konstruksi Prasarana Sumber Daya Air dan pelaksanaan nonkonstruksi di atas tanah pihak lain dilaksanakan setelah proses ganti kerugian dan/atau kompensasi kepada pihak yang berhak diselesaikan sesuai dengan ketentuan peraturan perundang-undangan.

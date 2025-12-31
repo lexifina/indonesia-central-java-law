@@ -1,0 +1,4 @@
+# Pasal 22
+(1) Rancangan Rencana Pengelolaan Sumber Daya Air pada Wilayah Sungai kewenangan Daerah disusun oleh Dinas melalui konsultasi dengan menteri/pimpinan lembaga pemerintah nonkementerian, Perangkat Daerah, dan unsur Masyarakat terkait.
+(2) Rancangan Rencana Pengelolaan Sumber Daya Air sebagaimana dimaksud pada ayat (1) dibahas dalam Wadah Koordinasi Pengelolaan Sumber Daya Air pada Wilayah Sungai kewenangan Daerah untuk mendapatkan pertimbangan.
+(3) Rancangan Rencana Pengelolaan Sumber Daya Air yang telah mendapatkan pertimbangan dari Wadah Koordinasi Pengelolaan Sumber Daya Air pada Wilayah Sungai kewenangan Daerah sebagaimana dimaksud pada ayat (2) disampaikan oleh Dinas kepada Gubernur untuk ditetapkan menjadi Rencana Pengelolaan Sumber Daya Air Wilayah Sungai kewenangan Daerah.
