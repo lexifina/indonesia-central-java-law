@@ -1,5 +1,7 @@
 # Central Java (Indonesia): law history in git
 
+Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is the law of Central Java, Indonesia, which global-law reads at `indonesia/central-java/acts/`.
+
 The Peraturan Daerah (Perda) of Provinsi Jawa Tengah, Indonesia, as a git history: one folder per Perda, one file per Pasal (article), one paragraph per line, so `git blame`, `git log` and `git diff` work line by line. The text is the Indonesian text of each Perda as enacted, from the copy (salinan) published by JDIH Provinsi Jawa Tengah (Biro Hukum Sekretariat Daerah Provinsi Jawa Tengah).
 
 It follows the shared design of [lexifina/global-law](https://github.com/lexifina/global-law).
